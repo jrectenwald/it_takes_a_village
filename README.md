@@ -7,12 +7,9 @@ What about dogs!?
 Kriton 
 Hey! 
 
-<<<<<<< HEAD
-<<<<<<< HEAD
 Can someone clean out the litter box?
 
-=======
-=======
+
 To raise all of these cats!????????!!!
 
 Yippie!
